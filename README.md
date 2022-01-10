@@ -1,0 +1,4 @@
+- 👀 I’m interested in your sister
+- 🌱 I’m currently learning how to get in yo mama's panties
+- 💞️ I’m looking to collaborate on genocide
+- 📫 How to reach me -> r$nxz#2249
